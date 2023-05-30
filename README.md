@@ -9,5 +9,7 @@
 
 
 ![demo.gif](../../Desktop/demo.gif)
-![zoomies-small.gif](../../Downloads/Snl Off Work GIF by Saturday Night Live - Find & Share on GIPHY_files/zoomies-small.gif)
+
+
+
 
